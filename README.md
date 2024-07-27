@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **deepikamahadevan01@gmail.com**
 
-- ⚡ Fun fact **I love dancing and I used to paint Modern Arts back in high school.**
+- ⚡ Fun fact--> **I love dancing and I used to paint Modern Arts back in high school.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
